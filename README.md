@@ -1,0 +1,1 @@
+The world is full of abundance and opportunity, but too many people come to the fountain of life with a sieve instead of cisterns, or a teaspoon instead of a backhoe. They expect little and get little as a result.
